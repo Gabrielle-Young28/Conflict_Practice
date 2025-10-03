@@ -1,2 +1,3 @@
 # Conflict_Practice
-This is an in class test to help us not suffer again.
+This is a class.  I don;t khow what i am doing,
+get me out of here. 
