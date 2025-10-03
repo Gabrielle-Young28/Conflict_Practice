@@ -1,4 +1,5 @@
 # Conflict_Practice
+
 This is an in class test to help us not suffer again.
 this is the part that we just gonna do every thing to make ourself suffer again
 now let's get started
@@ -12,3 +13,16 @@ i just do some random stuff
 ### CSS is confusing
 
 i got 60% on Jarrod class
+=======
+
+This is a class.  I don;t khow what i am doing,
+get me out of here. 
+
+This is to help us not suffer again.
+
+# Hello
+
+duisohoodheflneoeps
+;3
+
+
