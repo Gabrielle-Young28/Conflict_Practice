@@ -1,28 +1,22 @@
 # Conflict_Practice
 
-This is an in class test to help us not suffer again.
-this is the part that we just gonna do every thing to make ourself suffer again
-now let's get started
-in London the amount of homeless in Lodnon are too much im starting to shitting myself everytime i see them
+This is an in class test txjkvxjklvjkl
 
-in candada its really cold i dont even know wut to do and now i shivering in regret and cold to death 
-we now just typing random shi and i dont know what im doing
-## lmao
-i just do some random stuff
+cjkcxjklx
+o help us not be awful at this. ahhhh. Get me out of here though i feel like like shit. 
+ we need to fix these issues. kill me everyone shkfshkfdhjkfdjkh
 
-### CSS is confusing
 
-i got 60% on Jarrod class
+Kill us plz I need a nap.
 =======
 
-This is a class.  I don;t khow what i am doing,
-get me out of here. 
-
-This is to help us not suffer again.
+This is a class. I wanna get this right.
+cklkl;cvklc
+vcklvcjlkcvjkl
+This is to help us suffer.dfdsfkhdfshkfsdhjkfsdhjk
 
 # Hello
 
-duisohoodheflneoeps
-;3
+duisohoodheflneoepsdjkdfjkfdjkldfkljfskjlfjkl
 
 
